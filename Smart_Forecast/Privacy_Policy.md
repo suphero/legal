@@ -34,4 +34,4 @@ Data Retention When you place an order through the Site, we will maintain your O
 
 Changes We may update this privacy policy from time to time in order to reflect, for example, changes to our practices or for other operational, legal, or regulatory reasons.
 
-Contact Us For more information about our privacy practices, if you have questions, or if you would like to make a complaint, please contact us by e-mail at shopifysmartstores@gmail.com.
+Contact Us For more information about our privacy practices, if you have questions, or if you would like to make a complaint, please contact us by e-mail at stores.are.smart@gmail.com.
